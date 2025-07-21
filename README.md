@@ -1,5 +1,3 @@
-### **Live:** https://www.youtube.com/watch?v=zze2uZdaLgo
-
 ![image](https://github.com/user-attachments/assets/3a1f0594-86b4-41be-a80b-15f0306618d4)
 
 ---
